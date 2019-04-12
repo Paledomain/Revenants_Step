@@ -1,4 +1,4 @@
-# Revenants_Step
+# Revenant's Step
 
 In Revenant’s Step, A supplicant of Wadjet, Ahura, is betrayed by one of their fellow priests, and killed; only to be reborn as a revenant shortly after. Now, as they wade north to Lower Egypt in the steps of their murderer, they must also find out the reason why they were revived as a revenant.
 
